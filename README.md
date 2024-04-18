@@ -1,1 +1,1 @@
-# 2024-2b-minha-turma
+# 2024-2b-site-escola
